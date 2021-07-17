@@ -1,4 +1,4 @@
-👻Hi i'm Faheem and Currently Learning JavaScript, Reach me on insta @faheem.naufal👻
+Hi i'm Faheem and Currently Learning JavaScript, Reach me on insta @faheem.naufal👻
 
 
 <!---
